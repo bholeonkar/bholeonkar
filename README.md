@@ -11,7 +11,7 @@
 
 - 📝 I regularly write articles on [tgh0t1FPuyvHBg&s=09](tgh0t1FPuyvHBg&s=09)
 
-- 📫 How to reach me **bholeonkar@gmail.com**
+- 📫 How to reach me **onkarbhole04@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
